@@ -1,1 +1,1 @@
-# Optimizaci-n-2026-1
+# Optimización-2026-1
